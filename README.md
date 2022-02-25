@@ -14,6 +14,6 @@
 ![IMG_20220225_231104](https://user-images.githubusercontent.com/92802033/155749260-64574558-550a-414f-b0ad-a311e95c34a1.jpg)
 
 ### Thanks To :
-- [ ] [XNXCODE TEAM]()
+[XNXCODE TEAM]()
 ![images (1)](https://user-images.githubusercontent.com/92802033/155749449-964324dc-713a-4c27-bf33-d315b1e8f92d.jpeg)
 
