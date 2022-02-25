@@ -15,5 +15,4 @@
 
 ### Thanks To :
 [XNXCODE TEAM]()
-![images (1)](https://user-images.githubusercontent.com/92802033/155749449-964324dc-713a-4c27-bf33-d315b1e8f92d.jpeg)
-
+![TextCandy_1645387854093 png](https://user-images.githubusercontent.com/92802033/155749834-213b4ada-9609-48f9-a6f1-8792694b23eb.png)
